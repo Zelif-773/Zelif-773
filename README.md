@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Zelif-773
-- 👀 I’m interested in coding
-- 🌱 I’m currently learning python
-- 💞️ I don't plan on collaborating with anyone
+- Just -_-
+- -_-
+- 😑
+  
